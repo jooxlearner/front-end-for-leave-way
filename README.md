@@ -1,1 +1,0 @@
-nothing to say we are stupid because uploading a file in github is freaking drag and drop the folder and thats it neither i know nor the owner of this repo , hereafter freaking search it (owner), whoever see this by chance we know no one will but by chance lets assume , you will be laughing till your stomach hurts if you still did get it owner didn't upload the file peace ): 
